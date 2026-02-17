@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nox-Eternum
-- 👀 I’m interested in WEB3!
+- 👀 I’m interested in Coffee!
 
 
 <!---
